@@ -1,1 +1,0 @@
-# CHRONOSCOPE-3e-G-ographie-CH6
